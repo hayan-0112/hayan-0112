@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @hayan-0112🌱
-- 👀 I’m interested in "watch a moive🍿" and "listen to music🎧"
+- 👀 I’m interested in "watching a movie🍿" and "listening to music🎧"
 - 📫 How to reach me "yan4664@naver.com📨"
 
 <!---
